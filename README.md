@@ -1,0 +1,2 @@
+# Cokieclicker-gold
+kbkbk
